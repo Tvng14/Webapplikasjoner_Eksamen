@@ -3,8 +3,8 @@
 > Quiz & Fun with students
 
 Gruppemedlemmer:
-- Sarania Selvasri
-- Leo Rånes Nygård
-- Christine Ngoc Tran
-- Danny Pham
-- Tuong Vy Tabigne Nguyen
+- Sarania Selvasri, sasel4433
+- Leo Rånes Nygård, leonyg7535
+- Christine Ngoc Tran, chtra2129
+- Danny Pham, dapha0157
+- Tuong Vy Tabigne Nguyen, tungu2400
